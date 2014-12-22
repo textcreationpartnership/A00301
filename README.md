@@ -37,84 +37,338 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
+1. Tetraſticon ad Reginam.
+
+1. To the moſt high and
+vertuous Princeſſe, ELIZABETH by
+the grace of God, of England, Fraunce
+and Ireland Queene, defender of the faith,
+long health and perpetuall felicitie.
+
+1. To the Reader.
+In Sanfordi Epictetum Anglum. E. L.IMpiger extremis rediens Mercator ab IndisHas inquit merces India
+    _ In Sanfordi Epictetum Anglum. E. L.
+
+    _ Eiuſdem Edmundi Lewkener
+Libri ad Lectorem Proſopopeia.
+
+1. Againſt curious Carpers.
+
+1. The life of Epictetus.
+
 #####Body#####
 
-1. Annotations.
+1. 
+The Manuel of Epictetus
 
-1. Annotations.
+    _ Cap. 1. ¶What things are in man, and what are not.
 
-1. Annotations.
+    _ Cap. 2. ¶Of the domage which proceedeth of taking
+the one for the other, and of the profit in good
+Iudgement.The effects of a good and euill iudgement.
 
-1. Annotations.
+    _ Cap. 3. ¶That other mens matters muſt be omitted,
+our owne muſt be ſeene vnto, and that we can
+not do both.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 4. ¶Howe we oughte to behaue oure ſelues in
+euery ſharpe imagination.
 
-1. Annotations.
+    _ Cap. 5. ¶What thing it is that one ought to deſire, &
+one ought to flee.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 6. ¶Howe we oughte to eſteme the thinges
+wherein we take pleaſure, or which bryng vs
+profite.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 7. ¶How a man ought to take a matter in hand
+that we may be voide of perturbation, & firſt by
+meditation.
 
-1. Annotations.
+    _ Cap. 8. ¶Howe to put awaye our perturbations, thorowe
+the conſideration of the nature of ſuche
+things,We are troubled with opinions, not with the things them ſelues. as trouble vs.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 9. ¶The reaſon and proufe of the former precept
+with an aſsignation of thre ſorts of men.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 10. ¶That the glory in exteriour and outwarde
+things is vayne.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 11. ¶What outwarde things are graunted vs, and
+howe we ſhould vſe them, by a ſimilitude.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 12. ¶How we may enioy outward things without
+fault or trouble.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 13. ¶Of the remedies which we haue againſt all
+accidentes.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 14. ¶What maner of men we oughte to ſhewe
+oure ſelues, when we loſe outwarde worldly
+goodes.
 
-1. Annotations.
+    _ Cap. 15. ¶That a man ought not to loſe the quietneſſe
+of mynde, for exteriour and worldly things.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 16.We muſte take paciently the euill opinion of the multitude conceiued of vs. ¶That for the eſtimation of the people we
+ought not abandon vertue.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 17. ¶Againſt vaine glory.
 
-1. Annotations.
+    _ Cap. 18. ¶What things we oughte to deſire, & what
+we ought not.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 19. ¶What things make vs bonde, and what free.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 20. ¶A rule to electe and chooſe things preſent▪
+paſt, and to come, by a ſimilitude.
 
-1. Annotations.
+      * Annotations.
 
-1. Annotations.
+    _ Cap. 21. ¶By what meanes we muſte gouerne oure
+Imagination about ſuch things, as ſeme to be
+eſchewed.
 
-1. Annotations.
+    _ Cap. 22. ¶That it lieth not in vs to chooſe the ſtate of
+our life, but to vſe it euen as it chaunceth, by a
+very apte ſimilitude.
+
+      * Annotations.
+
+    _ Cap. 23. ¶By what meanes we ought to gouerne our
+Imagination, in looking for diuers things.
+
+      * Annotations.
+
+    _ Cap. 24. ¶Howe to be vnconquerable, being the cauſe
+of the former precepte, and as it were the concluſion.
+
+      * Annotations.
+
+    _ Cap. 25. ¶Which is the readieſt way to vertue.
+
+      * Annotations.
+
+    _ Cap. 26. ¶A ſolution of them which ſeme to let the
+things before mentioned, & how a man ſhould
+not be angrie.
+
+    _ Cap. 27. ¶How to learne, and ſet our minde in highe
+thinges.
+
+      * Annotations.
+
+    _ Cap. 28. ¶The ſeconde part, wherein he doeth pointe
+him out which hath already profited. And doth
+firſt diſſolue ſuch things, as come in vre to the
+ſtudents of Philoſophie.
+
+      * Annotations.
+
+    _ Cap. 29. ¶That boſting deſtroyeth the ſtate of a Philoſopher,
+in ſhewyng wherevnto he oughte to
+leane.
+
+      * Annotations.
+
+    _ Cap. 30. ¶How to aunſwere to ſuch ſtayes as woulde
+hinder a man from wiſedome.
+
+      * Annotations.
+
+    _ Cap. 31. ¶A continuation of the ſolution of ſuche
+things as do hinder him which doth beginne to
+ſtudye philoſophie and wiſedome, in ſhewing
+that a man ſhould not moue himſelfe, for that
+which chaūceth to an other & that he hath nothing
+of an other without giuing of his owne.
+
+      * Annotations.
+
+    _ Cap. 32. ¶What thinges are common euen according
+to the will of nature.
+
+    _ Cap. 33. ¶Howe one ought to vnderſtande the nature
+of yll.
+
+    _ Cap. 34. ¶We ought not abandon our minde to wrath
+for iniuries done: and how to take in hand our
+enterpriſes.
+
+      * Annotations.
+
+    _ Cap. 35. ¶An effectuall example to conſider what
+may befall in euerie thing which we ſhall take
+in hande.
+
+      * Annotations.
+
+    _ Cap. 36. ¶That dueties do ariſe of nature, and that they
+are conſidered howe a man ſhoulde behaue him
+ſelfe towardes any man, nexte of the dueties towards
+men.
+
+      * Annotations.
+
+    _ Cap. 37. ¶What our dueties are towards GOD, and how
+to behaue vs in his doings.
+
+      * Annotations.
+
+    _ Cap. 38. ¶What maner of man he ought to be that cōmeth
+to a Diuinour, and how to vſe diuinations,
+wherin reſteth our duetie towardes God, and towardes
+our ſelues.
+
+      * Annotations.
+
+    _ Cap. 39. ¶Dueties towards our ſelues, & firſte of ſuch
+as tende to the conſtancie of maners, and what
+thinges let it, and chiefly of talke and ſilence.
+
+      * Annotations.
+
+    _ Cap. 40. ¶Of laughing.
+
+    _ Cap. 41. ¶Of Othes.
+
+    _ Cap. 42. ¶What conuerſation may do.
+
+    _ Cap. 43. ¶Of the vſe of ſuche things as belong to the
+bodie.
+
+    _ Cap. 44. ¶Of the acte of Nature.
+
+      * Annotations.
+
+    _ Cap. 45. ¶Againſt anger, and what manner of men we
+ſhould ſhewe our ſelues towards backebiters.
+
+    _ Cap. 46. ¶How to behaue our ſelues in ſhewes and
+triumphes.
+
+    _ Cap. 47. ¶Of the deſire of ſuche as go to heare others
+communication.
+
+    _ Cap. 48. ¶When one hath to ſpeake with a noble perſonage.
+
+      * Annotations.
+
+    _ Cap. 49. ¶How we ought to prepare our ſelues, when
+we goe to ſpeake with a man of honoure.
+
+    _ Cap. 50. ¶When we meete with many men, how to
+frame our communication.
+
+    _ Cap. 51. ¶Howe to reſiſt pleaſure.
+
+    _ Cap. 52. ¶That we oughte not to leaue off our good
+purpoſe, what ſoeuer men ſay.
+
+    _ Cap. 53. ¶Of the honeſtie that we ought to keepe at
+the table.
+
+      * Annotations.
+
+    _ Cap. 54. ¶That we ſhould not vndertake more than
+we are able to do.
+
+    _ Cap. 55. ¶That we ought to be circumſpect aſwell to
+ſaue the minde harmeleſſe, as the body.
+
+    _ Cap. 56. ¶Of the poſſeſsion of ſuche things as belong
+to the body.
+
+    _ Cap. 56. ¶For maydens vnmaried.
+
+    _ Cap. 57. ¶That more care is to be had of the mynde
+than of the bodie.
+
+    _ Cap. 58. ¶A precept to learne pacience
+and meekeneſſe.
+
+      * Annotations.
+
+    _ Cap. 59. ¶That all things partely do agree the one
+with the other, and partly do diſagree.
+
+    _ Cap. 60. ¶That bicauſe of knoweledge, or hauing
+more than other, we cannot inferre that we are
+better.
+
+      * Annotations.
+
+    _ Cap. 61. ¶Of an exact iudgement in things.
+
+    _ Cap. 62. ¶Againſt glorie and oſtentation. And firſt as
+touching knowledge.
+
+    _ Cap. 63. ¶Againſt the boaſting of ſobrietie and ſufferaunce.
+
+    _ Cap. 64. ¶The deſcription of a triple qualitie or propertie,
+that is, of the vnlearned, of the Philoſopher,
+and of him that beginneth to learne.
+
+      * Annotations.
+
+    _ Cap. 65. ¶That learning is not only to be expounded
+but alſo to liue according as it doth preſcribe.
+
+    _ Cap. 66. ¶That we ought to perſeuer in goodneſſe.
+
+    _ Cap. 67. ¶That we ought not to deferre from day to
+day, for to leade a perfect life.
+
+    _ Cap. 68. ¶Three places in Philoſophie, and the order
+of them together.
+
+      * Annotations.
+
+    _ Cap. 69. ¶Three ſentences of the auncientes to be had
+in minde. Of the which the firſt is of Cleantes,
+the ſeconde of Euripides, the thirde of Plato.
+
+      * Annotations.
+
+1. ¶The Poeſie of Epictetus
+which he vſed as hys badge
+or Cogniſaunce.
+
+1. The Apophthegs or quicke
+Sentences of Epictetus.
 
 #####Back#####
-The manuell of Epictetus, translated out of Greeke into French, and now into English, conferred with
+Imprinted at London
+in Pater Noſter Rowe, by Henrie
+Bynneman, for Leonarde
+Maylard. And are to be ſo
 **Types of content**
 
   * There are 112 **verse** lines!
